@@ -17,3 +17,7 @@ Shoutout:
   - Shoutout to Mallory V. for being a patient driver-navigator partner despite hiccups with zoom permissions and terminal errors!
 
   - Shoutout to Billy F. for being a great study partner to work on the Mod 1 prework with!
+
+New thoughts:
+
+  - I wonder what I will have for dinner...
